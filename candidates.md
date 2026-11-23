@@ -1,0 +1,8 @@
+phosphene
+quicksilver
+gloaming
+skedaddle
+thrum
+limerence
+afterimage
+gobsmacked
